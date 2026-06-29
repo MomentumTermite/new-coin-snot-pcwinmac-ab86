@@ -1,4 +1,4 @@
-# 
+# 安全 new coin sniper bot 预设 Mac OS版 | 专业 new coin sniper bot 预设 PC Windows版。集成 DEX路由器集成 和 趋势检测，跨平台性能最大化。
 
 
 
